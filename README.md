@@ -1,0 +1,2 @@
+Acerca de
+Professional in Organizational Communication with a specialization in editing software, currently focused on Quality Assurance and software testing. I stand out for my sharp eye in detecting flaws and my ability to transform complex processes into clear and effective instructions. I blend the art of storytelling with the technique of debugging: I ensure not only that the code works, but that it flows seamlessly, like a well-crafted script. Analytical, meticulous, and with that spark that makes any team want to have me around.
